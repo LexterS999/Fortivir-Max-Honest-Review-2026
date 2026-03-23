@@ -37,6 +37,8 @@ Fortivir Max is a daily men's performance and vitality supplement. It's marketed
 
 First impressions out of the box were solid. The packaging is clean and professional, the capsules are easy to swallow, and the company provides clear usage instructions. No proprietary blends hiding behind vague "complexes" — the label is fully transparent.
 
+![Без названия](https://github.com/user-attachments/assets/d6c83303-e386-4176-83fc-073d589d205e)
+
 ---
 
 ## 2. Product Overview
