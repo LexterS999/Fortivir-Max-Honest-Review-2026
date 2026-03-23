@@ -17,12 +17,11 @@
 4. [Performance Analysis — Ingredients Breakdown](#4-performance-analysis)
 5. [User Experience — 90 Days of Testing](#5-user-experience)
 6. [How Fortivir Max Stacks Up vs. Competitors](#6-competitor-comparison)
-7. [Cost-Per-Day Calculator](#8-cost-per-day-calculator)
-8. [Evolution & Updates (2026)](#9-evolution--updates)
-9. [Purchase Recommendations](#10-purchase-recommendations)
-10. [🔍 Deep Research — 12 Sources Verified](#11-deep-research)
-11. [Final Verdict](#12-final-verdict)
-12. [FAQ](#13-faq)
+7. [Cost-Per-Day Calculator](#7-cost-per-day-calculator)
+8. [Evolution & Updates (2026)](#8-evolution--updates)
+9. [Purchase Recommendations](#9-purchase-recommendations)
+10. [Final Verdict](#10-final-verdict)
+11. [FAQ](#11-faq)
 
 ---
 
@@ -251,23 +250,6 @@ The company hasn't publicly announced a next-generation formula, but based on cu
 
 > ### 🛒 [Visit Official Fortivir Max Site](https://myblogshop.top/r/nGNFNolv/s)
 > 30-day money-back guarantee · No prescription needed · Ships worldwide
-
----
-
-## 10. Deep Research
-
-*Cross-referenced across Trustpilot, Reddit r/Supplements, BBB, Amazon, Quora, Consumer Reports, PubMed botanical databases, and 6 independent review sites.*
-
-| Category | Finding |
-|---|---|
-| ✅ **Manufacturing** | GMP-certified, FDA-registered facility in the USA. Pharmaceutical-grade quality control on every batch. |
-| ✅ **Label Transparency** | No proprietary blends. 14 active ingredients listed individually with standardisation percentages. One of the most transparent labels in the category. |
-| ✅ **Social Proof** | 9,989+ verified ratings, 4.5-star average. Top review keywords: "energy," "no jitters," "consistent," "clean label." |
-| ✅ **Pricing Confirmed** | $59.99 · $52.33/ea · $39.99/ea. Free US shipping on all orders. One-time purchase — no hidden subscriptions. |
-| ⚠️ **FDA Status** | NOT FDA-approved — no dietary supplement is. Manufactured in an FDA-registered facility (quality standard) — different from product approval. |
-| ⚠️ **Counterfeits Confirmed** | Reddit r/Supplements and BBB flagged fake listings on Amazon and Walmart. Official site only for guarantee eligibility and authentic product. |
-| ✅ **Piperine Advantage** | 95% standardised Piperine — rare at this level. Enhances absorption of all co-administered ingredients. Most competitors skip this entirely. |
-| ✅ **Results Timeline** | Consistent user-reported pattern: sleep quality wks 1–2 → daily energy wks 3–4 → full optimisation wks 5–8. Requires daily consistency. Results vary. |
 
 ---
 
